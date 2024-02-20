@@ -1,0 +1,1 @@
+![](heavy_spring.gif)
